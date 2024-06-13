@@ -7,4 +7,4 @@ how to make a universally decent toast.
 
 Ninja SP101
 
-Simply Nature Organic Red Pepper Hummus
+Simply Nature [ALDI] Organic Red Pepper Hummus
