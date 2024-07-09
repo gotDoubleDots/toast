@@ -7,4 +7,4 @@ how to make a universally decent toast.
 
 Ninja SP101
 
-Simply Nature [ALDI] Organic Classic Hummus
+Trader Joe's Organic Hummus
